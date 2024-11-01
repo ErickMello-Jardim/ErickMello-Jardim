@@ -4,6 +4,14 @@ Meu nome é _**Erick de Mello Ceolin**_, eu tenho 15 anos e atualmente estou est
 
 **ABOUT ME**
 
--✍🏻 Estudos:
+-✍🏻 Estudioso
 
--🕵🏻‍♂️ O que Busco 
+-😴 Preguiçoso
+
+-😈 Solteiro
+
+-🙏 Fiel
+
+-💢 Vascaino
+
+**Desejo em meu futuro um espaço próprio e sem alternâncias, sempre tentando ser melhor**
