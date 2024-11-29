@@ -15,3 +15,6 @@ Meu nome é _**Erick de Mello Ceolin**_, eu tenho 15 anos e atualmente estou est
 -💢 Vascaino
 
 **Desejo em meu futuro um espaço próprio e sem alternâncias, sempre tentando ser melhor**
+
+
+![](https://tenor.com/pt-BR/view/bluezao-gif-27663463)
